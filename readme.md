@@ -18,7 +18,7 @@ Let’s break down how to claim your deal.
 <a href="https://try.kartra.com/zm2118d4jb56-b6tcv" target="_blank" style="background-color: #28a745; color: white; padding: 12px 24px; text-decoration: none; border-radius: 6px; display: inline-block; font-weight: bold;">
 🚀 Claim 30% OFF + 30-Day Trial
 </a>
----
+
 
 ## 💸 WebinarJam Coupon Codes (April 2025)
 
