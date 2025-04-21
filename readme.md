@@ -3,7 +3,7 @@
 By Ryan | Last Updated: April 7, 2025
 
 
-Running webinars can get expensive — especially if you're starting out. But what if you could instantly save 30% on WebinarJam and try it free for 30 days?
+Running webinars can get expensive, especially if you're starting. But what if you could instantly save 30% on WebinarJam and try it free for 30 days?
 
 With the special WebinarJam coupon code below, you can do exactly that. There are no complicated steps or hidden fees—just a real discount that will work in 2025 and beyond.
 
