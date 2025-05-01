@@ -1,4 +1,4 @@
-# WebinarJam Coupon & 30 Day Trial (April 2025) – 30% OFF + $1 Trial
+# WebinarJam Coupon & 30 Day Trial (May 2025) – 30% OFF + $1 Trial
 
 By Ryan | Last Updated: April 7, 2025
 
