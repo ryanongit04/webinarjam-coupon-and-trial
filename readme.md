@@ -1,6 +1,6 @@
 # WebinarJam Coupon & 30 Day Trial (May 2025) – 30% OFF + $1 Trial
 
-By Ryan | Last Updated: April 7, 2025
+By Ryan | Last Updated: May 3, 2025
 
 
 Running webinars can get expensive, especially if you're starting. But what if you could instantly save 30% on WebinarJam and try it free for 30 days?
@@ -14,14 +14,12 @@ With this offer, you get access to:
 
 Let’s break down how to claim your deal.
 
-<a href="https://try.kartra.com/zm2118d4jb56-b6tcv" target="_blank" style="background-color: #28a745; color: white; padding: 12px 24px; text-decoration: none; border-radius: 6px; display: inline-block; font-weight: bold;">
-Get WebinarJam (30% OFF + 30-Day Trial) 🚀 
-</a>
-
----
+[Get WebinarJam (30% OFF + 30-Day Trial)](https://try.kartra.com/zm2118d4jb56-b6tcv)
+Use Coupon:
+ >**`STARTUP30`**
 
 
-## WebinarJam Coupon Codes (April 2025)
+## WebinarJam Coupon Codes (May 2025)
 
 Take advantage of **30% OFF & 30-Day Trial** using the coupon codes below:
 <h3>🎁 WebinarJam Coupon: 30% OFF + 30 Days Trial</h3>
@@ -29,7 +27,6 @@ Take advantage of **30% OFF & 30-Day Trial** using the coupon codes below:
 <p>Click the button below to visit the special WebinarJam offer and claim your discount:</p>
 <a href="https://try.kartra.com/zm2118d4jb56-b6tcv" target="_blank" style="background-color:#007BFF; color:white; padding:10 px 20 px; text-decoration:none; border-radius:5 px; display:inline-block; font-weight:bold;"> Activate Deal </a>
 
----
 
 
 ## How To Apply The WebinarJam Coupon Code (Step-by-Step)
@@ -51,7 +48,6 @@ Follow these simple steps to claim your **30% discount + 30-day trial**:
 
 7. Complete your purchase and enjoy full access to WebinarJam with your exclusive discount!
 
----
 
 ## WebinarJam Trial – Try It Before You Pay
 
@@ -63,7 +59,6 @@ If you want to explore WebinarJam without committing to a full plan, you can sta
 
 👉 [Start the 14-Day Trial for $1](https://try.kartra.com/buidocwgsjik-nra4ac)
 
----
 
 ### 🎁 30-Day Extended Trial (Special Promo)
 
