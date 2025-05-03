@@ -15,6 +15,7 @@ With this offer, you get access to:
 Let’s break down how to claim your deal.
 
 [Get WebinarJam (30% OFF + 30-Day Trial)](https://try.kartra.com/zm2118d4jb56-b6tcv)
+
 Use Coupon:
  >**`STARTUP30`**
 
