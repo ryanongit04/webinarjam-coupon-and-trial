@@ -10,7 +10,7 @@ With the special WebinarJam coupon code below, you can do exactly that. There ar
 With this offer, you get access to:
 
 - **30% OFF On All Plans**
-- **A 30-Day Trial For Only $1***
+- **A 30-Day Trial For Only $1**
 
 Let’s break down how to claim your deal.
 
