@@ -1,6 +1,6 @@
-# WebinarJam Coupon & 30 Day Trial (August 2025) – 30% OFF + $1 Trial
+# WebinarJam Coupon (August 2025) – 30% OFF + 30 Day Trial
 
-By Ryan | Last Updated: May 10, 2025
+By Ryan | Last Updated: August 01, 2025
 
 
 Running webinars can be expensive, especially when you're starting. But what if you could instantly save 30% on WebinarJam and try it free for 30 days?
